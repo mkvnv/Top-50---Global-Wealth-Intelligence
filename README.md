@@ -1,1 +1,1 @@
-# Top-50---Global-Wealth-Intelligence
+# Global-Wealth-Intelligence
